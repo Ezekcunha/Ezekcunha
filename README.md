@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Ezekcunha or Ezequias Cunha
+- 👋 Hi, I’m Ezequias Cunha
 - 👀 I’m interested work in Cloud Practitioner
 - 🌱 I’m currently learning a Course in Cloud Practitioner Computing
 - 💞️ I’m looking to collaborate on Cloud
-- 📫 How to reach me email ezekcunha1@gmail.com or www.linkedin.com/in/
-ezequiasaacunha
+- 📫 How to reach me email ezekcunha1@gmail.com or www.linkedin.com/in/ezequiasaacunha
+
 Nome fantasia da URL
 
 Nome fantasia da URL
